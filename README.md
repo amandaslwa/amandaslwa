@@ -1,6 +1,6 @@
-### ✨ Welcome ✨
+### ✨ Welcome, The name is Amanda! ✨
 
-The name is Amanda ![image](https://github.com/amandaslwa/amandaslwa/assets/90702710/495f6813-f223-4e2e-84c5-028556ea1829)
+![output-onlinegiftools](https://github.com/amandaslwa/amandaslwa/assets/90702710/558f30e8-1880-4621-a585-4a03e20fc99b)
 
 <!--
 **amandaslwa/amandaslwa** is a ✨ _special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
